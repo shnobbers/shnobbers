@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shnobbers
 - 👀 I’m interested in Pokemon Cards, lifting, and video games.
 - 🌱 I’m currently learning Game Art and Animation.
-- 📫 How to reach me: stormcareson@icloud.com
-- ⚡ Fun fact: I stream on Twitch @shnobbers
+- 📫 How to reach me: stormcareson@icloud.com.
+- ⚡ Fun fact: I stream on Twitch @shnobbers.
